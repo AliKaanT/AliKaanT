@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @AliKaanT
-- 🌱 I’m student at Yildiz Technical Univercity
+- 🌱 I’m student at Yildiz Technical University
 
